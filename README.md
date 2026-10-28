@@ -1,0 +1,1 @@
+# ApexQuant-XAU-GOLD-SIGNAL-
